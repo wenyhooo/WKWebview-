@@ -109,7 +109,7 @@
 > 介入术创伤小恢复快，而搭桥术非常痛苦，恢复也很慢，一般正常人都会选择介入术。
 > 结果客户在理赔时才发现，这款重疾险只保搭桥术，介入术是不赔的…
 
-<img src="/Users/liwenhao/Desktop/v2-3d2289c52d4e89bc288c44475c84dbb1_r.jpg" alt="v2-3d2289c52d4e89bc288c44475c84dbb1_r" style="zoom:40%;" />
+<img src="https://tva1.sinaimg.cn/large/007S8ZIlly1gfvn40vzt2j30wy0twe7t.jpg" alt="QQ20200617-220907@2x" style="zoom:40%;" />
 
 可以看到，各款产品还是有一定差异的。
 
@@ -216,7 +216,7 @@
 
 要注意特别约定部分:
 
-<img src="/Users/liwenhao/Desktop/v2-1d84b864a120ea3ab6636e6ea6374a80_1440w.jpg" alt="v2-1d84b864a120ea3ab6636e6ea6374a80_1440w" style="zoom:30%;" />
+<img src="https://tva1.sinaimg.cn/large/007S8ZIlly1gfvn469sgmj30u00uj0wv.jpg" alt="v2-1d84b864a120ea3ab6636e6ea6374a80_1440w" style="zoom:30%;" />
 
 一定要要注意细节, 举个例子,口号招牌打着包100万的意外险其实是这样的：
 
@@ -276,3 +276,4 @@ https://zhuanlan.zhihu.com/p/135906301
 ## 天呐❗️❗️我还是不知道买啥
 
 一头雾水，就继续看，看着看着就入门了。实在不想看，那就祈祷你遇到一个好的保险经纪人
+
